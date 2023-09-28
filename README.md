@@ -6,7 +6,7 @@
 
 &nbsp; 𝚆𝙴𝙻𝙲𝙾𝙼𝙴 𝚃𝙾 𝙼𝚈 𝙿𝚁𝙾𝙵𝙸𝙻𝙴&nbsp;
 
-<img src="https://emoji.discord.st/emojis/768b108d-274f-4f44-a634-8477b16efce7.gif" width="25">
+
 
 </h3>
 
@@ -15,6 +15,7 @@
 𝚅𝙸𝚂𝙸𝚃𝙾𝚁𝚂 𝙲𝙾𝚄𝙽𝚃
 
 <img src="https://profile-counter.glitch.me/MAFIA-404" />
+![Vanilla-0 5s-280px](https://github.com/TEAM-ELITE1/TEAM-ELITE1/assets/114340674/a059a54c-5313-4fb1-9ee4-3a7e15fe5669)
 
 </p>
 
